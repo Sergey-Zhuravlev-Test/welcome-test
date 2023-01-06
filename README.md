@@ -17,3 +17,4 @@
 ##### _Какой вид из окна я хочу видеть на новой работе:_
 
  ![вид](https://ru.wallpaper.mob.org/pc/image/photography-tropical-beach-boat-cliff-coastline-nature-ocean-seascape-thailand-tropics-656235.html)
+ 
